@@ -71,6 +71,9 @@
        
        thats all ! thank you for reading my read me !
            always remeber that your important to someone special !
+           Do not blame yourself if you lose soemone special.
+
+           
 
 
               ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
