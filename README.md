@@ -57,7 +57,7 @@
             sometimes at chinese safe server.
 
 
-            90% of seeing me using   ⤷ ゛D3RLORD3 ˎˊ˗ 𓂃🪶
+            90% of seeing me using   ⤷ ゛D3RLORD3 ˎˊ˗ 𓂃🪶 HvyFIctkin
 
             Please Sign my ata / Straw Page
 
