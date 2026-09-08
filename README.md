@@ -12,7 +12,7 @@
 
     
     Hello !
-    call me derek , spring
+    call me derek , spring , aspen
     ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
     im very nice to people who would like to int !
     dont be scared around me i dont bite at all !
@@ -57,7 +57,7 @@
             sometimes at chinese safe server.
 
 
-            90% of seeing me using   ⤷ ゛D3RLORD3 ˎˊ˗ 𓂃🪶 HvyFIctkin
+            90% of seeing me using   ⤷ ゛Aspen ˎˊ˗ 𓂃🪶 HvyFIctkin
 
             Please Sign my ata / Straw Page
 
