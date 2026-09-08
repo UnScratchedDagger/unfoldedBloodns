@@ -82,7 +82,7 @@
 
 
 
-                                                        GOOD BYE ! 
+                                                    GOOD BYE ! Dear reader !
                                                         
                                                         
                                                         
